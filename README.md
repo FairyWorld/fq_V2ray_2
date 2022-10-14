@@ -3,5 +3,5 @@
 
 
 👉[Telegram群组](http://t.me/PapaLaozi) 
-👉[Telegram频道](https://t.me/PapaLao) 
+👉[Telegram频道](https://t.me/PoorTaoist) 
  
